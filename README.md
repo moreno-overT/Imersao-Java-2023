@@ -5,3 +5,9 @@ Resultados:
 
 
 ![projeto 1](https://user-images.githubusercontent.com/129088431/228045876-c028bc63-5abd-4650-a6aa-2477eafd2de1.png)
+
+
+
+Dia 2: GERANDO FIGURINHAS PARA WHATSAPP
+
+(ainda vou atualizar quando tiver com menos sono KKKKKKKK)
